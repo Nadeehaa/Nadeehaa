@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning skills like SQL,Tableau,Python etc.....
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me (on linkedin) ps.nadeeha mapa shoukat
-- 😄 Pronouns: She?Her
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: I like cooking spl.Baking, An average kpop enthusiast and Animal Lover :)
 
 
