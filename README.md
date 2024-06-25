@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nadeehaa
-- 👀 I’m interested in data analysis,cybersecurity and business analysis
+- 👀 I’m interested in data analysis,UI/UX desinging,cybersecurity and business analysis
 - 🌱 I’m currently learning skills like SQL,Tableau,Python etc.....
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me (on linkedin) ps.nadeeha mapa shoukat
